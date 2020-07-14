@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Welcome to my repository.
+Welcome to my profile.
